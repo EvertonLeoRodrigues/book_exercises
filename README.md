@@ -1,1 +1,1 @@
-<img src="https://th.bing.com/th/id/OIP.QYCjNaW8qQH0_-PefELOxwHaE8?rs=1&pid=ImgDetMain" alt="Python Wallpaper" width=100% height=100%>
+<img src="[https://th.bing.com/th/id/OIP.QYCjNaW8qQH0_-PefELOxwHaE8?rs=1&pid=ImgDetMain](https://i.pinimg.com/originals/86/0b/09/860b0987e4e4e7ebdcd619296b46ad96.jpg)https://i.pinimg.com/originals/86/0b/09/860b0987e4e4e7ebdcd619296b46ad96.jpg" alt="Python Wallpaper" width=100% height=100%>
